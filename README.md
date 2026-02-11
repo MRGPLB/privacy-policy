@@ -1,1 +1,1 @@
-# privacy-policy
+# daily-greeting-cards-privacy-policy
